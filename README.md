@@ -1,12 +1,6 @@
 # goldendex-osu-skins
 
-cool skins :)
-
-Other Stuff:
-
-[My Discord](https://discord.gg/ukd4JefWKM)
-
-[My Profile](https://osu.ppy.sh/users/14176554)
+cool skins :)  (Ctrl+LeftClick to open in a different tab)
 
 
 
