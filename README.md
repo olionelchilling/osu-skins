@@ -10,5 +10,5 @@ cool skins :)  (Ctrl+LeftClick to open in a different tab)
 # [seoul+goldendex](https://mega.nz/file/fIgRwZaT#r4Hk5jSbZ-QzgJj4A8koUghuZckTGJRYbyI5RUFfA6I)
 ![](https://media.discordapp.net/attachments/1029797258763444324/1029797303399235744/unknown.png?width=1201&height=676)
 
-# [goldendex-HDDT](https://mega.nz/file/vAZwRJxJ#a3AM_FRUp753BKXROOySKL1nltyqWJe0psGp9KxqKyo) (ok aint gonna lie i dont even play with hd but everyone calls these skins hddt)
+# [goldendex-HDDT](https://mega.nz/file/vAZwRJxJ#a3AM_FRUp753BKXROOySKL1nltyqWJe0psGp9KxqKyo) (ok aint gonna lie i dont even play with hd but people calls these skins hddt)
 ![](https://media.discordapp.net/attachments/932221404580053002/1040706859163725975/screenshot114.jpg?width=1202&height=676)
